@@ -1,4 +1,6 @@
-# 6kitakita9
+# Hi everyone👋👋
+
+There is some information about me
 
 **Studying at NCU**
 
