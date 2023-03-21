@@ -1,9 +1,9 @@
 # Hi everyone👋👋
 
-There is some information about me
+❗❗There is some information about me:exclamation❗❗
 
-**Studying at NCU**
+⭐**Studying at NCU**
 
-**Noob in programming**
+⭐**Noob in programming**
 
-**Boardgames lover**
+⭐**Boardgames lover**
