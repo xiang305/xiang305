@@ -6,4 +6,4 @@
 
 ⭐**Noob in programming**
 
-⭐**Boardgames lover**
+⭐**Boardgames enthusiast**
